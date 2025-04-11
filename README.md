@@ -4,7 +4,16 @@ The fight is for the now-vacant UFC featherweight title after Ilia Topuria vacat
 Alexander Volkanovski's Story
 Record and recent form: Volkanovski (26-4) is a former UFC featherweight champion who maintained the title for more than four years and defended it five times. But he is coming off two knockout defeats in a row — first to Islam Makhachev in October 2024 at lightweight, and then to Ilia Topuria this past February at featherweight. This fight comes more than 14 months after his last one.
 Motivation: Volkanovski is 36 and has admitted this may be his last opportunity to recapture the title. He has taken on an "Old Man Volk" attitude, trying to show that he can still shine in his night days. He still believes his experience and tactical ability is enough to outlast younger adversaries.
-Diego Lopes' Rise
+Diego Lopes' Rise ((((Reddit))){}
+
+
+💻Best Live Streams for PC/MAC  
+🔴[SiteVisit](https://tinyurl.com/GithubUFC)
+
+📲Mobile  Friendly
+🔴[SiteVisit](https://tinyurl.com/GithubUFC)
+
+
 Record and Momentum: Lopes (26-6) is on a five-fight win streak, with wins over Dan Ige and Brian Ortega. Renowned for his aggressive style and knockout power, Lopes has quickly climbed the featherweight ladder since joining the UFC less than two years ago.
 Fighting Style: Lopes' elite jiu-jitsu grappling coupled with his striking power provides him with dangerous capabilities on the feet and rap grids. Questions about his cardio, however, have hung over him, despite a tendency toward improvement in his last few bouts.
 Keys to Victory
